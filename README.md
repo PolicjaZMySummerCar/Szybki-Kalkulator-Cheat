@@ -1,0 +1,1 @@
+# Szybki-Kalkulator-Cheat
